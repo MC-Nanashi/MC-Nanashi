@@ -16,5 +16,4 @@
 - [x] 𝗕𝗬𝗜 + 𝗡𝗼𝘁𝗲𝘀
 - [ ] ~𝗬𝗼𝘂𝗿 𝗦𝗼𝘂𝗹𝗺𝗮𝘁𝗲~
 
-<img width="2048" height="164" alt="tumblr_c0d9d3ca3fe2397ba5e151b3f241f2db_149f1b3a_2048" src="https://github.com/user-attachments/assets/bde2b6ba-8f3e-4b1c-9619-7feb894ff2d3" />
-
+<img width="1600" height="210" alt="tumblr_ba756e57d6e527b5365c0bb4bba62096_cef40d92_2048" src="https://github.com/user-attachments/assets/48effaec-e3fa-4392-8892-2533d655ec6f" />

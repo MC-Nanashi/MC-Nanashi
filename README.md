@@ -23,17 +23,17 @@
 <summary>. ..𓂃 ࣪ ִֶָ🪽་༘࿐ </summary>
 
 ‎Hiii, I’m too lazy to make this part aesthetic, so just read it, alright?
-‎
+
 - ‎Call me **Yukio, Kio, or Yuki**. Pet names are reserved only for *my closest friends.* Nicknames are fine, but please don’t make them too weird, okay?...
-‎
+
 - ‎**I am currently under 18**, and I’ll only share my actual age if I’m comfortable with you or if we’re close already. **If you’re under 12 or over 20, please interact with caution**—unless I already know you or we’ve talked before.
-‎
+
 - ‎I was born on **August 11**, so I’m a Leo.
-‎
+
 - ‎I’m *Filipino*, but I mostly speak English. I use abbreviations a lot, and sometimes my grammar isn’t great when I’m feeling lazy—sorry about that in advance!
-‎
+
 - ‎I’m an **INFP-T**, and I'm a bit *pessimistic*. I might sound or act negative sometimes, so if you’re not in the mood for that, feel free not to interact with me.
-‎
+
 - ‎I go by **any or all pronouns**. I’m **bisexual** and **aromantic.** I’m not taken, but I’m not in the right headspace for any kind of relationship right now.
 
 </details>

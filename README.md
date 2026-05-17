@@ -64,3 +64,24 @@
 - ‎My DNI list follows all the basic, common criteria you’d expect. Beyond that, I block freely if you’re rude, creepy, make me uncomfortable, or just generally annoy me. If my friends have issues with you, or if you’ve been rude/hurtful toward people I care about, I’ll be very wary of you and probably won’t interact much. I care a lot about the people close to me, and I don’t tolerate anyone who makes them feel bad or unsafe.
   
 </details>
+
+<details>
+<summary> ᡣ𐭩 •｡ꪆৎ ˚⋅</summary>
+  
+- **For Pony Town**: Please read my display name before interacting! Sometimes I’ll have notes like *dniucf, dniup, dniuf,* or *iwc* written there—don’t be confused if I don’t interact much in those cases. If I don’t have any notes listed, feel free to approach me anytime! If I don’t respond right away, I’m likely AFK or off-tab; you can try *w2i* to get my attention. I sometimes only interact with people from the fandom I’m cosplaying as, unless I’m already familiar with your fandom too. C+H or any interaction is always welcome, unless I state otherwise. That’s all for this part!
+‎
+- I’m a **Tamaki Yotsuba Riako** and *selective-sharing yumeshipper*, so I might not interact much with doubles—sorry about that in advance! I’m also a **Sogou Osaka** yumeshipper, but I’m *fully okay with sharing or mirror-sharing for him.*
+‎
+- If you want to add me on Discord or any other social media, please ask or let me know first so I recognize who you are. You’ll also need to message me personally to get my Discord username.
+‎
+- I get quite busy with real-life responsibilities sometimes, so I apologize if I’m not online often, or if I can’t finish something I promised to do for you.
+‎
+> ‎*(That’s all for now—check my main account or strawpage for more details!)*
+‎
+</details>
+
+<img width="2048" height="1060" alt="tumblr_863e0ccffa1dda537440556419e028cd_6372e209_2048" src="https://github.com/user-attachments/assets/572c4c7f-4113-4e14-9a92-6505b5f16638" />
+
+<img width="736" height="331" alt="Untitled32_20260517185930" src="https://github.com/user-attachments/assets/9f7ff395-a902-4c7b-9799-d13f22e6c150" />
+
+# 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚢𝚘𝚞𝚛 𝚝𝚒𝚖𝚎 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚝𝚑𝚒𝚜! 𐔌՞. .՞𐦯

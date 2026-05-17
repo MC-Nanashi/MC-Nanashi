@@ -76,7 +76,7 @@
 ‎
 - I get quite busy with real-life responsibilities sometimes, so I apologize if I’m not online often, or if I can’t finish something I promised to do for you.
 ‎
-> ‎*(That’s all for now—check my main account or strawpage for more details!)*
+> ‎(That’s all for now—check my main account or strawpage for more details!)
 ‎
 </details>
 
@@ -84,4 +84,4 @@
 
 <img width="736" height="331" alt="Untitled32_20260517185930" src="https://github.com/user-attachments/assets/9f7ff395-a902-4c7b-9799-d13f22e6c150" />
 
-# 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚢𝚘𝚞𝚛 𝚝𝚒𝚖𝚎 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚝𝚑𝚒𝚜! 𐔌՞. .՞𐦯
+# 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚢𝚘𝚞𝚛 𝚝𝚒𝚖𝚎 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚝𝚑𝚒𝚜! 𐔌՞..՞𐦯

@@ -38,4 +38,29 @@
 
 </details>
 
-# WIP 🚧
+<details>
+<summary> ݁ ˖Ი𐑼⋆ Ｆａｎｄｏｍｓ</summary>
+
+- My current/active hyperfixations are **Fragaria Memories, Twisted Wonderland, Boys Be Maid, Hypnosis Mic, Paradox Live, and IDOLiSH7.** (For my full list of fandoms and interests, check my main account or Strawpage.)
+
+> My current profile is themed after **_Ryū Zao_** from *Cute High Earth Defense Club*, one of my favorite comfort anime series!
+</details>
+
+## 𝔹𝕐𝕀 + ℕ𝕠𝕥𝕖𝕤 ⸝⸝ .ᐟ 
+
+<details>
+<summary> ๋࣭  ࣪ ˖ ┈ᯓ★ </summary>
+
+- I’m a very anxious person tend to overthink things in a negative way. If I ever feel like I’ve upset you, made you uncomfortable, or said something wrong, I’ll keep replaying it in my head—and this often drains my energy or puts me in a really bad mood. I’m sorry in advance if I ever seem distant or affected by this; it’s never really intentional, so don't put it to heart!
+
+- When I’m not feeling well mentally or emotionally, I tend to go quiet, stop replying for a while, or give very short, dry responses. Please don’t take this personally or think I’m ignoring you on purpose—I care about all the people I talk to a lot. I distance myself when I’m out of sorts because I’m scared I might say something harsh or do something rash that could hurt your feelings, and I never want that to happen.
+
+- ‎I’m not very talkative, and I’m pretty shy too. I prefer listening and reacting to what you say rather than forcing conversations or giving awkward replies. However, once we get close and I feel comfortable, I can get really chatty and might ramble on about random things—if that ever bothers you or becomes too much, please feel free to tell me honestly, I won’t get mad! Also, you’re welcome to yap or talk about anything and everything with me whenever you want—just please ask or let me know first before you start, ok?
+
+- I’m not very good at comforting people or giving advice. I get nervous saying the wrong thing, and I struggle to find the right words when someone is upset. I might not be the best person to come to for emotional guidance, but I promise I’ll still try my absolute best to be there for you and support you in whatever way I can. Also, please don’t start venting heavy or sensitive things to me out of the blue—always ask if I’m okay with it first, because sometimes I’m not in the right headspace to handle it and it can make me feel overwhelmed or uncomfortable.
+
+- ‎I almost never make the first move to start a conversation, unless we’re already really close friends. I get too nervous and overthink whether you’d even want to talk to me. So please, don’t hesitate to message or approach me first—I’d really appreciate it, and it would make me really happy to talk to you!
+
+- ‎My DNI list follows all the basic, common criteria you’d expect. Beyond that, I block freely if you’re rude, creepy, make me uncomfortable, or just generally annoy me. If my friends have issues with you, or if you’ve been rude/hurtful toward people I care about, I’ll be very wary of you and probably won’t interact much. I care a lot about the people close to me, and I don’t tolerate anyone who makes them feel bad or unsafe.
+  
+</details>

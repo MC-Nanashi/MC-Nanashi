@@ -91,6 +91,7 @@
 
 <br>
 <img width="736" height="331" alt="Untitled32_20260517185930" src="https://github.com/user-attachments/assets/9f7ff395-a902-4c7b-9799-d13f22e6c150" />
-<img width="402" height="52" alt="tumblr_f969ae6aa3a107d172066d9b46224749_5e046d63_500" src="https://github.com/user-attachments/assets/d9c5c5ea-c773-49a3-81d8-b91f564d1d2a" />
+<img width="2048" height="163" alt="tumblr_93a72357d991bdaac81071ef706ea0cb_741af8d8_2048" src="https://github.com/user-attachments/assets/f6374b50-7a33-4503-9cb6-06f62676bada" />
+
 
 # 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚢𝚘𝚞𝚛 𝚝𝚒𝚖𝚎 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚝𝚑𝚒𝚜! 𐔌՞..՞𐦯

@@ -80,6 +80,8 @@
 ‎
 </details>
 
+<img width="736" height="405" alt="Untitled33_20260518111032" src="https://github.com/user-attachments/assets/b420e5d0-b8f3-4f4d-a9c5-95ee17d218bb" />
+
 <img width="2048" height="1060" alt="tumblr_863e0ccffa1dda537440556419e028cd_6372e209_2048" src="https://github.com/user-attachments/assets/572c4c7f-4113-4e14-9a92-6505b5f16638" />
 
 **“𝘐 𝘢𝘤𝘵 𝘭𝘪𝘬𝘦 𝘐 𝘥𝘰𝘯’𝘵 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘴𝘦𝘳𝘪𝘰𝘶𝘴 𝘵𝘩𝘪𝘯𝘨𝘴, 𝘭𝘪𝘬𝘦 𝘐 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘵 𝘧𝘶𝘯 𝘢𝘯𝘥 𝘨𝘢𝘮𝘦𝘴…𝘣𝘶𝘵 𝘐 𝘥𝘰 𝘤𝘢𝘳𝘦. 
@@ -87,6 +89,8 @@
 𝘐 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘦𝘷𝘦𝘳𝘺 𝘴𝘪𝘯𝘨𝘭𝘦 𝘱𝘦𝘳𝘴𝘰𝘯 𝘐 𝘮𝘦𝘦𝘵, 𝘦𝘷𝘦𝘳𝘺 𝘧𝘦𝘦𝘭𝘪𝘯𝘨, 𝘦𝘷𝘦𝘳𝘺 𝘮𝘦𝘮𝘰𝘳𝘺. 𝘈𝘯𝘥 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘐 𝘤𝘢𝘳𝘦 𝘴𝘰 𝘮𝘶𝘤𝘩…𝘪𝘵’𝘴 𝘴𝘰 𝘦𝘢𝘴𝘺 𝘧𝘰𝘳 𝘮𝘦 𝘵𝘰 𝘨𝘦𝘵 𝘩𝘶𝘳𝘵. 
 𝘐 𝘸𝘪𝘴𝘩 𝘐 𝘤𝘰𝘶𝘭𝘥 𝘣𝘦 𝘵𝘰𝘶𝘨𝘩𝘦𝘳, 𝘰𝘳 𝘮𝘰𝘳𝘦 𝘭𝘪𝘬𝘦 𝘺𝘰𝘶, 𝘐𝘰…𝘣𝘶𝘵 𝘐 𝘤𝘢𝘯’𝘵. 𝘐 𝘧𝘦𝘦𝘭 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨, 𝘢𝘭𝘭 𝘢𝘵 𝘰𝘯𝘤𝘦.”**
 
+<br>
 <img width="736" height="331" alt="Untitled32_20260517185930" src="https://github.com/user-attachments/assets/9f7ff395-a902-4c7b-9799-d13f22e6c150" />
+<img width="402" height="52" alt="tumblr_f969ae6aa3a107d172066d9b46224749_5e046d63_500" src="https://github.com/user-attachments/assets/d9c5c5ea-c773-49a3-81d8-b91f564d1d2a" />
 
 # 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚝𝚊𝚔𝚒𝚗𝚐 𝚢𝚘𝚞𝚛 𝚝𝚒𝚖𝚎 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚝𝚑𝚒𝚜! 𐔌՞..՞𐦯

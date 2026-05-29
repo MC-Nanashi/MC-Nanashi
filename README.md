@@ -61,7 +61,13 @@
 
 - ‎I almost never make the first move to start a conversation, unless we’re already really close friends. I get too nervous and overthink whether you’d even want to talk to me. So please, don’t hesitate to message or approach me first—I’d really appreciate it, and it would make me really happy to talk to you!
 
+- ‎I’m ~~passively suicidal~~, and I sometimes make dark jokes or comments related to that kind of thing. I’m really sorry if this ever makes you uncomfortable or upset—it’s just how I cope sometimes, and I never mean to hurt anyone. **Please tell me right away if you dislike it or if it triggers you**, and I’ll stop immediately.
+
+- You’ll usually see my status set to “offline” or “invisible” on almost all my social media accounts. I do this mostly out of habit or to feel more comfortable, so I apologize if I appear offline or absent most of the time! You can still message or interact with me whenever you want—just know that I’ll probably reply very late, sometimes even after days, and that’s nothing personal.
+
 - ‎My DNI list follows all the basic, common criteria you’d expect. Beyond that, I block freely if you’re rude, creepy, make me uncomfortable, or just generally annoy me. If my friends have issues with you, or if you’ve been rude/hurtful toward people I care about, I’ll be very wary of you and probably won’t interact much. I care a lot about the people close to me, and I don’t tolerate anyone who makes them feel bad or unsafe.
+
+### If all of the above sounds bothersome, tiring, or too much for you to handle, or if you’re not comfortable with these kinds of things—please feel absolutely free to not interact with me at all. I’d rather you stay comfortable than force yourself to put up with me.
   
 </details>
 
